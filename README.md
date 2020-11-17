@@ -18,4 +18,4 @@
 
 O que estou achando do curso ?
 
-Muito interessante!
+Muito interessante, muita informção, mas para quem está entrando na área sem conhecimento prévio, faltam detalhes. 
